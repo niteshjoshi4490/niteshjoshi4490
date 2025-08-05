@@ -19,8 +19,8 @@
 -  Let’s connect, collaborate, and solve data puzzles together.
 -  Feel free to fork, star, or reach out—feedback fuels growth!
 
- 📫 How to reach me: https://www.linkedin.com/in/nitesh-joshi-30930368/
- niteshjoshi4490@gmail.com
+ 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/nitesh-joshi-30930368/)
+ [Email](niteshjoshi4490@gmail.com)
  
 
 
